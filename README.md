@@ -5,7 +5,7 @@
 ---
 
 ### 🎨 About Me
-I am a beginner graphic designer with a strong passion for learning different skills in the world of visual design.  
+I am a graphic designer with a strong passion for learning different skills in the world of visual design.  
 I am also actively exploring and developing my abilities in **AI-based image creation**, experimenting with creative tools and modern generative technologies.
 
 ---
