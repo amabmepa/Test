@@ -27,10 +27,9 @@ I am also actively exploring and developing my abilities in **AI-based image cre
 ---
 
 ### 📫 Contact Me
-- Email: **your-email@example.com**
-- Instagram: **your-instagram**
-- Behance / Dribbble (optional)
-
+- Email: **amabmepa@gmail.com**
+- Instagram: **Grafirst1**
+  
 ---
 
 <p align="center">
